@@ -1,1 +1,1 @@
-# mckjac88.github.io
+Unfortunately all of the sizeable projects that I've made large contributions to were contained on replit and I recently lost access to them due to replit changing the way that their website functions. I intend to add them to this page as I make them
